@@ -1,4 +1,4 @@
-## Hi there, I'm [Stefania][https://www.linkedin.com/in/denisa-stefania-adriana-tudor-858172200]! 👋
+## Hi there, I'm [Stefania](https://www.linkedin.com/in/denisa-stefania-adriana-tudor-858172200)! 👋
 
 ### About me:
 👩‍🎓 22' Computing graduate @ Imperial College London
